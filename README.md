@@ -1,0 +1,1 @@
+# seichikumayama.github.io
